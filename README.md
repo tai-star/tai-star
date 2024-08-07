@@ -31,5 +31,7 @@ Algumas ideias sobre mim!:
 - 📫 como chegar ate mim: mande uma carta!✌️ ...
 - 💙 Pronomes: Tai
 - 💭💞ah o amor nasce nao sei aonde doi nao sei como e morre nao sei porque-Luiz Camoes
+- <div class="tenor-gif-embed" data-postid="10618191897823243351" data-share-method="host" data-aspect-ratio="1" data-width="100%"><a href="https://tenor.com/view/hyunjin-dumpling-valrani-hyunjin-cute-dumpling-wink-hyunjin-wink-gif-10618191897823243351">Hyunjin Dumpling Valrani GIF</a>from <a href="https://tenor.com/search/hyunjin+dumpling-gifs">Hyunjin Dumpling GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+  
 
 
